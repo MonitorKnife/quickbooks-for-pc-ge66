@@ -1,4 +1,4 @@
-# 
+# Enhance QuickBooks for PC | QuickBooks for Windows with advanced QuickBooks for PC | QuickBooks for Windows Helper | receipt-capture + inventory-management, the #1 helper.
 
 
 
